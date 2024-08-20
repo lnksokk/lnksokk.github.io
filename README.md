@@ -1,1 +1,0 @@
-# lnksokk.github.io
